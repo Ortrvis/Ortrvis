@@ -17,9 +17,9 @@
 ⠀ 
 > Country: Czech⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀> Likes: Games⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀https://www.youtube.com/watch?v=Rbm6GXllBiw⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀
 > Favorite song :
-
+https://www.youtube.com/watch?v=Rbm6GXllBiw
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀> Dislikes: Fly´s / moskitos⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀–––––––––––––––––––––╯⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
