@@ -7,8 +7,9 @@
 ⠀⠀                
 > Age: 15⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
        
-      > Relationship: No? obviously ^_^
-⠀  
+     
+     
+ > Relationship: No? obviously ^_^
 > Languages:Czech / English ⠀⠀             
 
 ⠀⠀⠀⠀⠀⠀⠀⠀  > Gender: Male⠀⠀
@@ -16,9 +17,10 @@
 ⠀ 
 > Country: Czech⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀> Likes: Games⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀> Favorite song :
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀https://www.youtube.com/watch?v=Rbm6GXllBiw⠀
+> Favorite song :
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀> Dislikes: Fly´s / moskitos⠀⠀⠀⠀⠀⠀ https://www.youtube.com/watch?v=Rbm6GXllBiw⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀> Dislikes: Fly´s / moskitos⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀–––––––––––––––––––––╯⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀┌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┐
